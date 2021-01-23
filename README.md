@@ -1,2 +1,1 @@
-![dino](https://user-images.githubusercontent.com/77879497/105575193-6d011180-5d9c-11eb-9fad-7319a18741af.gif)
-
+![Anurag's github stats](https://github-readme-stats.vercel.app/api?username=Jackintos&show_icons=true&theme=cobalt)
