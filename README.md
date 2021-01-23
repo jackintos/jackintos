@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=antonkomarev&color=5998D0	)
 
-If you want me. u can dm
+If I awesome, dm
 
 https://www.facebook.com/skeletondickrising23
 
