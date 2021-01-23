@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=antonkomarev&color=#aafffa	)
+![](https://komarev.com/ghpvc/?username=antonkomarev&color=aafffa	)
 
 ![Anurag's github stats](https://github-readme-stats.vercel.app/api?username=Jackintos&show_icons=true&theme=tokyonight)
 
